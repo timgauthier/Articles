@@ -1,5 +1,7 @@
 # "Worse than war": Emergency doctor Dennis Ritter and his paramedic colleagues saved almost 150 people during the night of the floods in the Ahr Valley.
 
+### Source: [Rhein-Zeitung: "Worse then War"](https://www.rhein-zeitung.de/region/rheinland-pfalz_artikel,-schlimmer-als-krieg-notarzt-dennis-ritter-hat-mit-sanitaetskollegen-in-der-ahrtalflutnacht-fast-150-m-_arid,2287082.html)
+
 ![Unimog Ambulance](https://www.rhein-zeitung.de/cms_media/module_img/4598/2299023_1_largegalleryimage_image_656db6af41330951.jpg "Unimog Ambulance")
 
 ![Ahrtal](https://www.rhein-zeitung.de/cms_media/module_img/4598/2299024_1_largegalleryimage_image_10a32ab05c6a965.jpg "Ahrtal flooded")
